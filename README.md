@@ -33,5 +33,5 @@ Atuar como **Analista de TI Pleno** ou **Desenvolvedor Júnior**, aplicando minh
 **Entre em contato:**
 
 - Email: rodrigon.cruz21@gmail.com
-- LinkedIn: [Seu LinkedIn aqui]
+- LinkedIn: https://www.linkedin.com/in/rodrigo-cruz-69b1411b8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app
 - WhatsApp: (11) 94886-2025
